@@ -13,7 +13,7 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/VarshaAS9980](https://github.com/VarshaAS9980)
 
-- 📫 How to reach me **darshanms101@gmail.com**
+- 📫 How to reach me **varsha01056@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
